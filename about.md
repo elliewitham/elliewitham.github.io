@@ -39,4 +39,4 @@ Tea Guide/Sales Associate at DAVIDsTEA
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[witham.e@northeastern.edu](mailto:witham.e@northeastern.edu)
