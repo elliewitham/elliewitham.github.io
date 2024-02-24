@@ -17,17 +17,19 @@ Archival Researcher for the Recovering Black History of the Monadnock Region, fo
 Retail Associate at Revolutionary Spaces
 
 
+
 **Awards/Publications/Presentations:**
 
-<a href="https://cssh.northeastern.edu/history/student-awards/" target="_blank">Professor Robinson Award</a> for best undergraduate essay written in history for the 2022-2023 school year. Awarded for senior thesis, “‘We will do everything, even break the law if necessary’: Environmental action and the challenges of radiation waste disposal in New Jersey.”
-
 Panelist at the American Society for Environmental History’s annual conference in Denver, April 2024. Panel, “Environmentalism Without Justice: Popular Discontent with State Environmental Regulation in Argentina and the United States.” 
+
+<a href="https://cssh.northeastern.edu/history/student-awards/" target="_blank">Professor Robinson Award</a> for best undergraduate essay written in history for the 2022-2023 school year. Awarded for senior thesis, “‘We will do everything, even break the law if necessary’: Environmental action and the challenges of radiation waste disposal in New Jersey.”
 
 William M. and Marilyn L. Fowler History Co-op Fund Award, 2022
 
 Global Experience Office Grant, 2021
 
 Global Experience Office Editorial Fellowship, 2021
+
 
 
 **Past Experience:**
