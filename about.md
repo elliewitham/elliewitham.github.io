@@ -16,6 +16,20 @@ Archival Researcher for the Recovering Black History of the Monadnock Region, fo
 
 Retail Associate at Revolutionary Spaces
 
+
+**Awards/Publications/Presentations:**
+
+<a href="https://cssh.northeastern.edu/history/student-awards/">Professor Robinson Award</a> for best undergraduate essay written in history for the 2022-2023 school year. Awarded for senior thesis, “‘We will do everything, even break the law if necessary’: Environmental action and the challenges of radiation waste disposal in New Jersey.”
+
+Panelist at the American Society for Environmental History’s annual conference in Denver, April 2024. Panel, “Environmentalism Without Justice: Popular Discontent with State Environmental Regulation in Argentina and the United States.” 
+
+William M. and Marilyn L. Fowler History Co-op Fund Award, 2022
+
+Global Experience Office Grant, 2021
+
+Global Experience Office Editorial Fellowship, 2021
+
+
 **Past Experience:**
 
 Research Assistant at Northeastern University's School of Public Policy and Urban Affairs	
@@ -24,7 +38,7 @@ Teaching and Co-op Coordinator Assistant at Northeastern University College of S
 
 Starbucks Barista
 
-Research Intern at the Kluge Center within the Library of Congress
+<a href="https://cssh.northeastern.edu/wp-content/uploads/2023/05/Witham_Ellie_Library-of-Congress-scaled.jpg">Research Intern at the Kluge Center</a> within the Library of Congress
 
 Undergraduate Student Fundraiser at the Northeastern University Telefund
 
